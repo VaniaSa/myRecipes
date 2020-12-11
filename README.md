@@ -1,0 +1,1 @@
+Vanilla Sponge Cake is the best and the simplest recipe to follow. Baking it is a child's play. This recipe is completely vegetarian (eggless).
